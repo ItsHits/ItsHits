@@ -1,3 +1,3 @@
-- 👋 Offical HitsFM Github
+- 👋 Offical Github account for ItsHits
 - 💞️ Why not follow us on GitHub for free radio sites.
 - 📫 Contact us (coming soon)
