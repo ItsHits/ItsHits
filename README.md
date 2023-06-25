@@ -1,3 +1,3 @@
-- 👋 Offical Github account for ItsHits
-- 💞️ Why not follow us on GitHub for free radio sites.
-- 📫 Contact us (coming soon)
+- 👋 Hey! Im Pxmpkxn
+- 💞️ Just your piece of trans
+- 📫 https://discord.gg/36Z4u8Q5uN
